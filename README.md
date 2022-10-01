@@ -5,7 +5,7 @@ our private TikTok view bot focuses on views only , our bot can send views insta
 
 to buy contact us :
 
-Email: hamoudyazen@gmail.com
+Email: santahamod@gmail.com
 
 PRICE : 50$.
 
